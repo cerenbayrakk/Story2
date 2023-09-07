@@ -1,1 +1,1 @@
-# Story2
+# Bu benim yeni metnim
